@@ -1,0 +1,1 @@
+# kel5_pca_clusterpeta_peternakan_sapi
